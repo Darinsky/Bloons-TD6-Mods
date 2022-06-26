@@ -2,6 +2,6 @@
 My Mods
 
 
-Street Monkey - Coming Tomorrow on the 1330 discord
+Street Monkey - Fully Released on 6/26/2022
 
 ????????? - Coming Soon!
