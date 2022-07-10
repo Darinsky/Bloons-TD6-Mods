@@ -4,4 +4,4 @@ My Mods
 
 Street Monkey - Fully Released on 6/26/2022
 
-????????? - Coming Soon!
+Candy Monkey - Coming Soon!
